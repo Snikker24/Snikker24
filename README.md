@@ -1,0 +1,3 @@
+I throw stuff in the pot and keep what sticks to it.
+Traumarized by kraken attacks👀...
+Shady code dealer😉. Don't blame me if it doesn't work, you don't have it from me🐱‍👤.
